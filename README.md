@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil: FRancaa07
+### Bem vindos ao meu perfil: FRancaa07
 Meu nome é Fabiulla Franca
 
 - ### esse perfil foi criado, com base na aula do Alura
